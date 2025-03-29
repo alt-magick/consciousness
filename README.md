@@ -1,5 +1,7 @@
-# consciousness
+# Consciousness
 What if everything was conscious
+
+https://www.vox.com/future-perfect/353430/what-if-absolutely-everything-is-conscious
 
 If you’re feeling brave, sit and look — and I mean really look — at a plant on your windowsill as it bends toward the light. It seems simple, but stare at it long enough and you may find yourself doubting everything you thought you knew about your own mind.
 

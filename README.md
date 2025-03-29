@@ -1,5 +1,5 @@
 # Consciousness
-What if everything was conscious
+What if absolutely everything is conscious
 
 https://www.vox.com/future-perfect/353430/what-if-absolutely-everything-is-conscious
 
